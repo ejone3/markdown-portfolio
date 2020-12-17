@@ -1,0 +1,1 @@
+![Image of Senku Isigami, from the anime Dr. Stone. Not my art.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fdr-stone.fandom.com%2Fwiki%2FSenku_Ishigami&psig=AOvVaw0aWN_anVs8g4-FMfY2gzOW&ust=1608326528289000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJitwa351e0CFQAAAAAdAAAAABAD)
