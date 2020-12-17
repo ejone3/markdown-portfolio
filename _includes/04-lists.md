@@ -1,1 +1,32 @@
-Replace this with a list of your favorite things.
+- Video Games
+  - Zelda (BOTW)
+  - Final Fantasy (X)
+  - Splatoon 2
+  - Super Smash Bros Ultimate
+  - Pokemon (various games)
+  
+- Books
+  - Black Beauty
+  - Solutions and Other Problems
+  - Harry Potter (the entire series)
+  - Tokyo Ghoul (the entire series)
+  
+- Anime
+  - FMAB
+  - Rising of the Shield Hero
+  - One Punch Man
+  - Fire Force
+  - Assassination Classroom
+  - HxH
+  - Fairy Tail
+  - Wakfu
+  - ATLA
+  - Ouran High School Host Club
+  - The Promised Neverland
+  - The Seven Deadly Sins
+  - Maid-Sama
+  - Toradora
+  - Angel Beats
+  - Akame-Ga Kill
+  - Sword Art Online
+  - Gun Gale Online
